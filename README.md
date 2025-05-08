@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ishalulu
+- 👋 Hi, I’m @Tal Malikin
 - 👀 I’m interested in food
 - 🌱 I’m currently learning Cooking
 - 📫 How to reach me -food
